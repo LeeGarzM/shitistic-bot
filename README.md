@@ -1,0 +1,1 @@
+# shitistic-bot
